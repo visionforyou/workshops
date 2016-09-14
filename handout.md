@@ -32,24 +32,24 @@ This is what we did.
 
 ### I. Reflection --- the Three Acknowledgements
 
- 1. We acknowledged that we are the cause of our own unhappiness through our self-centered behaviours, thoughts and feelings (otherwise known as sins). The cause is not other people or
+ 1. We acknowledged that **we are the cause of our own unhappiness** through our self-centered behaviors, thoughts and feelings (otherwise known as sins). The cause is not other people or
 circumstances, no matter how unfortunate.
 
- 2. We acknowledged that we are unable to control our thoughts and actions perfectly or to rid ourselves of that unhappiness, which is in the form of resentment and fear.
+ 2. We acknowledged that **we are unable to control our thoughts and actions perfectly** or to rid ourselves of that unhappiness, which is in the form of resentment and fear.
 
- 3. We acknowledged that our sole hope for happiness is in God. We set ourselves this ideal for living: with God’s grace we can do his will, be free of resentment and fear and have a good, beautiful and joyful life. Once we have accepted this truth, then we do have a choice and we can say that misery is optional.
+ 3. We acknowledged that **our sole hope for happiness is in God**. We set ourselves this ideal for living: with God’s grace we can do his will, be free of resentment and fear and have a good, beautiful and joyful life. Once we have accepted this truth, then we do have a choice and we can say that misery is optional.
 
 ### II. Action --- the Five Spiritual Exercises
 
- 1. We adopted a daily routine of prayer, reflection and good works.
+ 1. We adopted a **daily routine of prayer, reflection and good works**.
 
- 2. When the daily routine had become habitual, we undertook a detailed written self-examination, looking at our past thoughts, feelings and behaviors in order to root out the resentments and fears arising from our self-centeredness. We admitted our shortcomings to God and to another trusted person.
+ 2. When the daily routine had become habitual, we undertook a **detailed written self-examination**, looking at our past thoughts, feelings and behaviors in order to root out the resentments and fears arising from our self-centeredness. We admitted our shortcomings to God and to another trusted person.
 
- 3. We made amends for any harms done, provided that to do so would not cause more harm.
+ 3. We **made amends for any harms done**, provided that to do so would not cause more harm.
 
- 4. We discerned our personal vocation by consideration of what we would like to do in our wildest dreams, and then worked towards that goal.
+ 4. We **discerned our personal vocation** by consideration of what we would like to do in our wildest dreams, and then worked towards that goal.
 
- 5. We continued to deepen our spiritual lives through the practice of a daily routine of prayer, reflection and good works.
+ 5. We **continued to deepen our spiritual lives** through the practice of a daily routine of prayer, reflection and good works.
 
 ## A Summary of the Daily Routine
 
@@ -62,7 +62,7 @@ We adopted this routine of prayer, reflection and good works until it became a h
  2. In the evening before retiring, again on your knees say: _Thank you, God for looking after me._ --- It's good manners to say "Thank you."
 
  3. Reactive prayers during the day.
-     a. If you are angry or annoyed at someone, Pray for the person repeatedly until you feel better. For example: _Please give [the name of the person] everything that I would wish for myself._
+     a. If you are angry or annoyed at someone, pray for the person repeatedly until you feel better. For example: _Please give [the name of the person] everything that I would wish for myself._
      b. If you are fearful or anxious, say the _Serenity Prayer_ repeatedly until you feel better: _God grant me the serenity to accept the things I cannot change; the courage to change the things I can; and the wisdom to know the difference._
      c. When you have been through the detailed self-examination as outlined in the spiritual exercises, apply this process to resentments and fears that crop up during the day as needed to remove them and to have a happy life.
 

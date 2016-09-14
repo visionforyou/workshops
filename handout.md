@@ -62,7 +62,7 @@ We adopted this routine of prayer, reflection and good works until it became a h
  2. In the evening before retiring, again on your knees say: _Thank you, God for looking after me._ --- It's good manners to say "Thank you."
 
  3. Reactive prayers during the day.
-     a. If you are angry or annoyed at someone, Ppray for the person repeatedly until you feel better. For example: _Please give [the name of the person] everything that I would wish for myself._
+     a. If you are angry or annoyed at someone, Pray for the person repeatedly until you feel better. For example: _Please give [the name of the person] everything that I would wish for myself._
      b. If you are fearful or anxious, say the _Serenity Prayer_ repeatedly until you feel better: _God grant me the serenity to accept the things I cannot change; the courage to change the things I can; and the wisdom to know the difference._
      c. When you have been through the detailed self-examination as outlined in the spiritual exercises, apply this process to resentments and fears that crop up during the day as needed to remove them and to have a happy life.
 
